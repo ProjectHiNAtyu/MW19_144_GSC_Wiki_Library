@@ -38,7 +38,7 @@ Thank you always, and I support you.
 
 If you’d like to learn more about this GSC Mod Menu, please check out the YouTube video below.
 
-coming soon...
+https://x.com/KonataGIF/status/1929930876626055313
 
 
 ----------
